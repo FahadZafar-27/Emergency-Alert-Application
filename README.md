@@ -1,1 +1,1 @@
-# Emergency-Alert-Application (FYP) For Apk File please DM me.
+# Emergency-Alert-Application (FYP) for APK file please DM me.
